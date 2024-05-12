@@ -5,4 +5,4 @@
 -Crypt any exe file supports the old and new rat and supports the stealer
 - 🆕 update
 😳@Silentkillertv
-https://t.me/Silent_Tools
+https://t.me/Silent_Tools/415)
